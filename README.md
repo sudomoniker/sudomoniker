@@ -22,16 +22,21 @@ Blender
 Figma
 
 Other interests/hobbies:
+
 Muay Thai (Kickboxing)
+
 Strength Training / Nutrition
+
 Photography - I love shooting portraits and concerts/festivals!
           -https://www.instagram.com/pseudomoniker/
+          
 Chess - Currently 1650 in rapid, shooting for 1800 by the end of 2021!
           - https://www.chess.com/member/sudomoniker
 
 
 Don't forget to check out my personal portfolio! It's honestly beautiful and I'm super proud of it!
           - https://linkeddesign.online
+          - 
 
 To view my resume: 
           - https://linkeddesign.online/Resume 
